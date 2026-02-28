@@ -1,1 +1,1 @@
-# CENT-S-Academy
+# CENT-S Academy
